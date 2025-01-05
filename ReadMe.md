@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on differnet projects related to IT to get hands on experience
 - 📫 How to reach me >> 240-869-2764 OR malaikanoorasif@gmail.com
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: Immigrant, First-generation college student, person in my family to pursue a career in IT.
+- ⚡ Fun fact: Immigrant, First-generation college student.
 
 <!---
 masif17/masif17 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
